@@ -1,3 +1,3 @@
 # Certificates
 
-Here ara some certificates and diploma, that i got from courses and hackatons
+Here are some certificates and diploma, that i got from courses and hackatons
